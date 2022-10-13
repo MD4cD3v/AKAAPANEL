@@ -1,4 +1,3 @@
 # AKAAPANEL
 source vex07
-FREE MUỐN XỊN CÚT DÙM
-PASS manhducdz
+FREE DÙNG ĐỪNG ĐÒI HỎI
